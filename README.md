@@ -1,0 +1,2 @@
+# 10th
+about thinking
